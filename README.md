@@ -1,1 +1,1 @@
-# Visit Now:-  https://ravipaliwal1434.github.io/college/
+# Visit Now:- https://jainnanu.github.io/college-main/
